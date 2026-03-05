@@ -1,0 +1,1 @@
+professor dionatan so dificulta pros alunos pensar que estão perdidos porém ele vem e nós ajuda a entender tudo de uma visão diferente e torna a aula mais interressante, e desafiadora (entao aqui vai a dica "sempre pergunte" até mesmo oque você sabe)
