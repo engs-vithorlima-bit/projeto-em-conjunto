@@ -1,0 +1,2 @@
+# titulo: disciplinas Engenharia de Software 
+Criatividade e inovação: Focada em explorar a criatividade dos alunos com diferentes tipos de  abordagens que desenvolvem nosso cérebro a pensar de outras formas para criar algo novo, para criar algo inovador no mercado é preciso ter tempo e também ter a mente aberta a várias ideias e práticar esses pensamentos.
